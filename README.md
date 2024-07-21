@@ -1,1 +1,1 @@
-# N-mina-de-pensionados
+# Nómina-de-pensionados
